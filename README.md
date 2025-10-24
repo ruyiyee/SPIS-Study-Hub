@@ -16,6 +16,8 @@ Warm regards,
 
 Ruyi Ye
 
-President, Student Parliament (Nov 2025)
+President, Student Parliament
 
 St. Peter’s International School
+
+November 2025
